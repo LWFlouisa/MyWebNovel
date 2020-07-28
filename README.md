@@ -1,2 +1,2 @@
-# MyWebNovel
-A personal web fiction platform.
+# uploadedfairySynd
+Syndicated version of Uploaded Fairy.
