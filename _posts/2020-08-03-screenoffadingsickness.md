@@ -1,5 +1,5 @@
 ---
-title: Screen Of Fading Sickness
+title: Part Two. Screen Of Fading Sickness
 published: true
 ---
 In the usual case, local host is used to refer to “this computer”. Using Sync Thing, one can share folders across multiple devices. That treats those specific folders as a local folder, and you can run a local host port using the same port across two devices, because it acts as two separate ported hosts. The existing HTML file is already able to be accessed across the different devices as long as they have been properly sync with. When you boot up port 8000 on each device, you can view the same page with the same port. So even though you use the same file, it acts as two separate servers.
