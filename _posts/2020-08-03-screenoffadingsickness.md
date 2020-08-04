@@ -15,3 +15,11 @@ At points, my own disinterest in the flow of lime green matrix strings felt term
 A programmer out of time.
 
 Only variables on a screen of fading sickness.
+
+In my youth my solace was in the flow of blood from necks. Gushing out in lightning speed flooding out into a bucket. The head falls off shoulder, the midnight star fades. The lament of a Japanese pop-star starlet. Even now, as flames fade out into the midnight sky, I wilt from all the sin. A paradoxical, very fantastical, paradox of skin. All burned in red rashes, all burned in red rashes.
+
+This isn’t the flow of of midnight sonnet, or the flow of a Flamenco guitar. But the sound of a violin and Shamisen bowed and plucked under the cover of darkness, as the world becomes a very of purgatory. Some creators worry that the future of print is on the wane, but it seemed that will always be some creative flame. Flowing like dot matrix design patterns, burned into a sheet of card stock. My fantasy was for a Japanese girl in Birkenstock, all dressed in overall flare. With the softest curly brunette hair. Fresh out of college, a life of who dresses as if she were a collage. Like scattered pieces of paper replacing actual clothing, she smells like decaying bouquets of flours.
+
+The actual difference between a lunette and a noose was minimal, the only difference being where the head goes. But the body still suffocates do to oxygen deprivation. Vision fading to the rhythm of Yo, Flamenco, and Fado scale. A funeral march to diluted blood. A life withered into dust.
+
+The future was protesters marching, a society turned to rust. And all she could ever do was deny her trust, for she could not even trust other anarchists for her own pleasures. A pleasure as minute as dust. The girl of my dreams, the girl I see wandering away from me. I am always chasing for that one. As I try to get back into working on AI, all over again.
