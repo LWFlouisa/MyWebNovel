@@ -1,6 +1,6 @@
 ---
 title: In Silhouettes They Moaned
-published: true
+published: false
 ---
 Both girls were walking through the military facility. Size wise it was about the size of a city, with glass window separating layers upon layers of underbelly. The lightning was the level of an old night light. The music depended on the person who was in charge of clean up each night. One offered the other a beer, then continued where she left of:
 
