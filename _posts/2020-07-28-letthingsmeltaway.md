@@ -1,5 +1,5 @@
 ---
-title: Part One. Let Things Melt Away
+title: Novel Project Part One. Let Things Melt Away
 published: true
 ---
 Sometimes it’s easy to forget how differently your parents raised you to think they were, and the sudden realizations you get when you get to know them more as you get older. As a case in point, the conclusions you hear from their mouth, and how your personality grows over time to be different from them. As much as they try to tell you you will end up just like them, despite all evidence to the contrary, the reality is that they will tell you this regardless of how similar you are to them. This is why it is so important to remember to focus on improving yourself.
