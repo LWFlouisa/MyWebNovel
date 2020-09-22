@@ -4,7 +4,7 @@ published: true
 ---
 By S.R. Weaver
 
-A stealth bomber flies overhead the city, searching for targets. These are various protesters from different activist groups. Playing like some repetive pop song.
+A stealth bomber flew overhead the city, searching for targets. These are various protesters from different activist groups. Playing like some repetive pop song.
 
 Yet the song was nothing like the one in her mind.
 
