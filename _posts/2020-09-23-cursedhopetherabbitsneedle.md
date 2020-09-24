@@ -2,6 +2,10 @@
 title: CursedHope The Rabbits Needle
 published: true
 ---
+By
+
+[LWFlouisa SRWeaver](https://lwflouisa.github.io/Homepage/)
+
 It was a cold evening, when the sky had a slight Green tint to it. Masami had gone home from work to visit his brother, who had taken an early requirement do to an unexplained illness. At home, his brother had become infected by some mysterious parasite that effected him, when he was working in a government-run lab.
 
 “Stay back, Masami. I don’t want you to get this too.” the brother said.
